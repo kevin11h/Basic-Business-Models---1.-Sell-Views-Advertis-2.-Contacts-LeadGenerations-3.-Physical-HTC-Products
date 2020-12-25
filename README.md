@@ -16,6 +16,7 @@ https://www.youtube.com/watch?v=Qu-LoCMPYX4&t=273s
 
 ![](https://blog.adioma.com/wp-content/uploads/2013/05/how-funding-works-infographic.png)
 
+![](https://www.appsflyer.com/wp-content/uploads/2018/09/cpa-graphic.png)
 ![](https://www.tune.com/tune-com-content/uploads/2019/01/what-is-affiliate-marketing.jpg)
 ### Click Through & Lead Generations 
 ### 2. Cpa Network ( Cost Per Action )  CPC CHARGE PER CLICK CHARGE PER TRANSACTION CREDIT++ PER TRANSACTION PAYRATE
