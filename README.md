@@ -22,3 +22,4 @@ https://www.youtube.com/watch?v=Qu-LoCMPYX4&t=273s
 ###### 8. Social Media Marketing Consultant (MOnthly RETAINER FEE)
 ###### 9. Social Media Marketing Agency (MOnthly RETAINER FEE)
 
+![](https://blog.hubspot.com/hs-fs/hubfs/larger-inbound-methodology.png?width=600&name=larger-inbound-methodology.png)
