@@ -9,7 +9,7 @@ https://www.youtube.com/watch?v=Qu-LoCMPYX4&t=273s
 ![](https://images-na.ssl-images-amazon.com/images/I/71zWF5IBT9L.jpg)
 
 
-![](https://blog.adioma.com/wp-content/uploads/2013/05/how-funding-works-infographic-700x466.png)
+![](https://blog.adioma.com/wp-content/uploads/2013/05/how-funding-works-infographic.png)
 ## Investing
 ## 6. Equity Partnership (MOnthly RETAINER FEE)
 
