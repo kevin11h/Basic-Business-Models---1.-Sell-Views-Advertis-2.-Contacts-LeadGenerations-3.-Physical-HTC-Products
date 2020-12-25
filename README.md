@@ -3,22 +3,26 @@ Basic Business Models Strategies Methods Systems 1. Social Media Get Page Views 
 https://www.youtube.com/watch?v=Qu-LoCMPYX4&t=273s
 
 
-
+# Subscription
 # 10. Subscription Create A Paid Community
 # 1. Subscription Create Membership Site SubscriptionS
 
+## Investing
 ## 6. Equity Partnership (MOnthly RETAINER FEE)
 
+
+### Click Through & Lead Generations 
 ### 2. Cpa Network ( Cost Per Action )  CPC CHARGE PER CLICK CHARGE PER TRANSACTION CREDIT++ PER TRANSACTION PAYRATE
 ### 7. Lead Arbitrage ??
 ### 5. Online Sales Affiliated Marketing  Time x Physical Products Problem Sales Skills  High Ticket Online Sales Affiliated Marketing -- Sell OPP Other Peoples Product
 
 
+#### EdTech Tutoring Coaching 
 #### 3. Selling Online Course 
 #### 4. Online Coaching -- Time x People Problem
 
 
-
+###### Social Media Marketing
 ###### 8. Social Media Marketing Consultant (MOnthly RETAINER FEE)
 ###### 9. Social Media Marketing Agency (MOnthly RETAINER FEE)
 
