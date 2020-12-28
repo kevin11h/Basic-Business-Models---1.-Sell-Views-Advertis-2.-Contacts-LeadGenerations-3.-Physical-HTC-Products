@@ -1,5 +1,8 @@
 # Basic-Business-Models---1.-Sell-Views-Advertis-2.-Contacts-LeadGenerations-3.-Physical-HTC-Products
-Basic Business Models Strategies Methods Systems 1. Social Media Get Page Views "Virtual Real Estate" flipping build value on page-s and selling up 2. lead generation upsell 3. commission product marketing
+Basic Business Models Strategies Methods Systems
++ 1. Social Media Get Page Views "Virtual Real Estate" flipping build value on page-s and selling up
++ 2. lead generation upsell
++ 3. commission product marketing
 https://www.youtube.com/watch?v=Qu-LoCMPYX4&t=273s
 ![](https://i.gr-assets.com/images/S/compressed.photo.goodreads.com/books/1541948713l/42167361.jpg)
 # 1-Click Affiliate Link Sales Commission! Product + Affiliate Link
@@ -12,24 +15,24 @@ https://www.youtube.com/watch?v=Qu-LoCMPYX4&t=273s
 
 ## 7 Best Side Hustles Dan Lok
 ### https://www.youtube.com/watch?v=3vM1jSVHdLs&list=TLPQMjQxMjIwMjCuM1VHqsaq_&ab_channel=DanLok
-0:45 1 - Buying and Selling Used Stuff
-1:52 2 - Copywriting
-2:49 3 - Tutoring
-3:39 4 - Closing
-5:00 5 - Sitting
-5:37 6 - Renting Out on Airbnb
-6:15 7 -  Social Media Management
++ 0:45 1 - Buying and Selling Used Stuff
++ 1:52 2 - Copywriting
++ 2:49 3 - Tutoring
++ 3:39 4 - Closing
++ 5:00 5 - Sitting
++ 5:37 6 - Renting Out on Airbnb
++ 6:15 7 -  Social Media Management "Consultancy" "Content Credit Nonsense!"
 
 
 ## 7 Best Online Business ModelsDan Lok
 ### https://www.youtube.com/watch?v=3vM1jSVHdLs&list=TLPQMjQxMjIwMjCuM1VHqsaq_&ab_channel=DanLok
-1. Ecommerce
-2. Dropshipping
-# 3. Affiliate marketing
-# 4. Software business #SAAS
-5. Google adsense
-# ? 6. Expert business  
-7. Youtube
++  1. Ecommerce
++  2. Dropshipping
+# +  3. Affiliate marketing 1-Click Purchase Referral LINKsEXCHANGE
+# +  4. Software business #SAAS
++ 5. Google adsense #vus
+# +  ? 6. Expert business  <-- What is this? Consultancy?
++ 7. Youtube #vus
 
 # Subscription
 # 10. Subscription Create A Paid Community
