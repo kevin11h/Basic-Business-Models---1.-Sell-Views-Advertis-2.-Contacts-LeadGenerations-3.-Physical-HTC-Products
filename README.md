@@ -26,13 +26,13 @@ https://www.youtube.com/watch?v=Qu-LoCMPYX4&t=273s
 
 ## 7 Best Online Business ModelsDan Lok
 ### https://www.youtube.com/watch?v=3vM1jSVHdLs&list=TLPQMjQxMjIwMjCuM1VHqsaq_&ab_channel=DanLok
-+  1. Ecommerce
-+  2. Dropshipping
+#### +  1. Ecommerce
+#### +  2. Dropshipping
 # +  3. Affiliate marketing 1-Click Purchase Referral LINKsEXCHANGE
 # +  4. Software business #SAAS
-+ 5. Google adsense #vus
+#### + 5. Google adsense #vus
 # +  ? 6. Expert business  <-- What is this? Consultancy?
-+ 7. Youtube #vus
+#### + 7. Youtube #vus
 
 # Subscription
 # 10. Subscription Create A Paid Community
