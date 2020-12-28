@@ -1,7 +1,7 @@
 # Basic-Business-Models---1.-Sell-Views-Advertis-2.-Contacts-LeadGenerations-3.-Physical-HTC-Products
 Basic Business Models Strategies Methods Systems 1. Social Media Get Page Views "Virtual Real Estate" flipping build value on page-s and selling up 2. lead generation upsell 3. commission product marketing
 https://www.youtube.com/watch?v=Qu-LoCMPYX4&t=273s
-![](https://i.gr-assets.com/images/S/compressed.photo.goodreads.com/books/1541948713i/42167361._SY75_.jpg)
+![](https://i.gr-assets.com/images/S/compressed.photo.goodreads.com/books/1541948713l/42167361.jpg)
 # 1-Click Affiliate Link Sales Commission! Product + Affiliate Link
 
 ![](https://pbs.twimg.com/card_img/1342605165854158848/9-2beJf2?format=png&name=small)
