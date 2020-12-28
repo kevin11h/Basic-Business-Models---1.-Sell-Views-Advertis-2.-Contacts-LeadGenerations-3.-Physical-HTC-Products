@@ -34,6 +34,9 @@ https://www.youtube.com/watch?v=Qu-LoCMPYX4&t=273s
 # +  ? 6. Expert business  <-- What is this? Consultancy?
 #### + 7. Youtube #vus
 
+![](https://i.gr-assets.com/images/S/compressed.photo.goodreads.com/books/1541948713l/42167361.jpg)
+# 1-Click Affiliate Link Sales Commission! Product + Affiliate Link
+
 # Subscription
 # 10. Subscription Create A Paid Community
 # 1. Subscription Create Membership Site SubscriptionS
