@@ -1,3 +1,5 @@
+https://github.com/kevin11h/1.-HTC-Closer-Books-Info-Products-2.-Lead-Generation-3.-WebWallet-4.-Subscription-Content-Compelling
+https://github.com/kevin11h/LEARN-COIN-LEARNING-VIDEOS-PLUS-CRYPTOCURRENCY-WALLET-Wa2u-WatchWallet-WaWa-Wa2tch-Wa2u
 # Basic-Business-Models---1.-Sell-Views-Advertis-2.-Contacts-LeadGenerations-3.-Physical-HTC-Products
 Basic Business Models Strategies Methods Systems
 + 1. Social Media Get Page Views "Virtual Real Estate" flipping build value on page-s and selling up
